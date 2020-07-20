@@ -1,2 +1,0 @@
-# boumanggz-behandelplan-templates
-malpractise
